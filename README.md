@@ -44,8 +44,8 @@
 
 ### Interests · 兴趣
 
-Cross-border capital markets law · Legal tech & AI evaluation · History & philosophy · Xiangqi
+Cross-border capital markets law · Legal tech & AI evaluation · History & philosophy 
 
 ### Contact · 联系
 
-📝 WeChat Official Account · 微信公众号：学长陈十一
+w2332y@gmail.com
